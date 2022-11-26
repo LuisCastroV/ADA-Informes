@@ -1,7 +1,11 @@
-Foro 2: Realice comentarios a Pablo y Catalina. (S1 en Drive)
+Foro 2 (S1 en Drive): 
+- Se realizan comentarios a Pablo y Catalina. 
 
-Foro 3: Realice comentarios a Pablo y Cristobál. (S2 en Drive)
+Foro 3 (S2 en Drive): 
+- Se realizan comentarios a Pablo y Cristobál. 
 
-Foro 8: Realice comentario a Cristobál. (S8 en Drive)
+Foro 8 (S8 en Drive): 
+- Se realiza comentario a Cristobál. 
 
-Foro 9: Realice comentario a Aranzasu. (S9 en Drive)
+Foro 9 (S9 en Drive): 
+- Se realiza comentario a Aranzasu.
